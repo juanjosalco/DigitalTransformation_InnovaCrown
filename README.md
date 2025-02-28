@@ -1,4 +1,4 @@
-# Proyecto Transformacion Digital 
+# Proyecto Transformación Digital 
 
 ## Propósito y justificación del proyecto
 Este proyecto tiene como propósito fundamental entregar una propuesta detallada y bien estructurada para la expansión estratégica de los productos y servicios de la empresa **Grupo Innova Crown** hacia la ciudad de San Antonio, Texas, una ubicación clave en el suroeste de los Estados Unidos. El objetivo principal de esta iniciativa es no solo consolidar la presencia de la compañía en un mercado regional dinámico y en crecimiento, sino también aprovechar esta oportunidad para expandirse de manera significativa y llegar a nuevos mercados y clientes a nivel internacional. Con esto, se busca diversificar la base de consumidores, aumentar la visibilidad de la marca en un entorno competitivo y multicultural, y establecer una plataforma sólida para futuras operaciones globales, adaptándose a las necesidades específicas de la región y explorando alianzas estratégicas que impulsen el éxito a largo plazo.
